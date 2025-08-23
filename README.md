@@ -1,16 +1,16 @@
-## Hi there 👋
+∘₊✧─────────────────✧₊∘ 
 
-<!--
-**antoriri0125/antoriri0125** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ᴀᴄᴄᴏᴜɴᴛ ᴍᴀᴅᴇ ꜰᴏʀ ᴘᴏɴʏ ᴛᴏᴡɴ ᴘᴜʀᴘᴏꜱᴇꜱ
 
-Here are some ideas to get you started:
+ ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ᴍᴀɪɴ ꜱᴛʀᴀᴡᴘᴀɢᴇ ɪꜱ ᴀʙᴏᴠᴇ ᴛʜᴇ ᴏᴛʜᴇʀ ʟɪɴᴋꜱ
+
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
+★ ꜱᴏɴɪᴄ ᴛʜᴇ ʜᴇᴅɢᴇʜᴏɢ ɪꜱ ᴍʏ ꜱᴘɪʀɪᴛ ᴀɴɪᴍᴀʟ ♡
+
+![giphy](https://github.com/user-attachments/assets/af7b266e-7635-4ce6-b7cf-91cbdc12924d)
+
+
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
