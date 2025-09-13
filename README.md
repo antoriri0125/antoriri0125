@@ -14,6 +14,8 @@ Please interact with caution as I had a problematic past, so there will be times
 
 Feel free to interact unless said otherwise (May have DNIUF/DNIUCF labeled in my name sometimes for personal reasons.)
 
+I have mild dementia and I constantly forget who people are unless I see them occasionally.
+
 I'm a complex person and I'm not easy to become friends with, so please be cautious with me as I have a disorganized attachment style.
 
 please stop when I ask you to. whether you see me as a chronically online person or not, remember that I'm a human being and my boundaries matter.
