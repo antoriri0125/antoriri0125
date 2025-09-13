@@ -10,15 +10,21 @@
 
 ↓ 𝗥𝗘𝗔𝗗 𝗕𝗘𝗙𝗢𝗥𝗘 𝗬𝗢𝗨 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 ↓
 
-ɪ'ᴍ ᴀ ꜱɪʟʟʏ / ꜱᴇʀɪᴏᴜꜱ ʀᴏʟᴇᴘʟᴀʏᴇʀ ᴀɴᴅ ɪ'ᴍ ɪɴ ᴄʜᴀʀᴀᴄᴛᴇʀ ᴍᴏꜱᴛ ᴏꜰ ᴛʜᴇ ᴛɪᴍᴇ, ꜱᴏ ᴅᴏɴ'ᴛ ᴛᴀᴋᴇ ᴀɴʏᴛʜɪɴɢ ɪ ᴅᴏ ᴏʀ ꜱᴀʏ ꜱᴇʀɪᴏᴜꜱʟʏ.
+Please interact with caution as I had a problematic past, so there will be times when I don't act friendly.
 
-ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴜɴʟᴇꜱꜱ ꜱᴀɪᴅ ᴏᴛʜᴇʀᴡɪꜱᴇ (ᴍᴀʏ ʜᴀᴠᴇ ᴅɴɪᴜꜰ/ᴅɴɪᴜᴄꜰ/ᴅɴɪᴜɪᴅ ʟᴀʙᴇʟᴇᴅ ɪɴ ᴍʏ ɴᴀᴍᴇ ꜱᴏᴍᴇᴛɪᴍᴇꜱ ꜰᴏʀ ᴘᴇʀꜱᴏɴᴀʟ ʀᴇᴀꜱᴏɴꜱ ᴏʀ ɪ'ᴍ ᴊᴜꜱᴛ ɴᴏᴛ ɪɴ ᴛʜᴇ ꜱᴏᴄɪᴀʟ ᴍᴏᴏᴅ ᴀᴛ ᴛʜᴇ ᴍᴏᴍᴇɴᴛ)
+Feel free to interact unless said otherwise (May have DNIUF/DNIUCF labeled in my name sometimes for personal reasons.)
 
-ᴘʟᴇᴀꜱᴇ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴄᴀᴜᴛɪᴏɴ ᴀꜱ ɪ ʜᴀᴅ ᴀ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ᴘᴀꜱᴛ, ꜱᴏ ᴛʜᴇʀᴇ ᴡɪʟʟ ʙᴇ ᴛɪᴍᴇꜱ ᴡʜᴇɴ ɪ ᴅᴏɴ'ᴛ ᴀᴄᴛ ᴋɪɴᴅ.
+I'm a complex person and I'm not easy to become friends with, so please be cautious with me as I have a disorganized attachment style.
 
-ɪ ʜᴀᴠᴇ ɴᴏ ɪɴᴛᴇɴᴛɪᴏɴ ᴏꜰ ʜᴜʀᴛɪɴɢ ᴀɴʏᴏɴᴇ ᴀᴛ ᴀʟʟ, ᴀɴᴅ ɪ’ᴍ ꜱᴏʀʀʏ ɪꜰ ɪ ᴛʀᴇᴀᴛ ʏᴏᴜ ʙᴀᴅʟʏ — ɪ ᴍɪɢʜᴛ’ᴠᴇ ʙᴇᴇɴ ᴛʀɪɢɢᴇʀᴇᴅ ʙʏ ꜱᴏᴍᴇᴛʜɪɴɢ ʏᴏᴜ ꜱᴀɪᴅ ᴏʀ ᴅɪᴅ. (ᴏʀ ᴍᴀʏʙᴇ ɪ ᴊᴜꜱᴛ ᴀᴄᴛ ʟɪᴋᴇ ᴀɴ ᴀꜱꜱʜ0ʟᴇ ꜰᴏʀ ɴᴏ ʀᴇᴀꜱᴏɴ ꜱᴏᴍᴇᴛɪᴍᴇꜱ.)
+please stop when I ask you to. whether you see me as a chronically online person or not, remember that I'm a human being and my boundaries matter.
 
-ᴘʟᴇᴀꜱᴇ ʀᴇꜱᴘᴇᴄᴛ ᴍʏ ʙᴏᴜɴᴅᴀʀɪᴇꜱ ᴀɴᴅ ꜱᴛᴏᴘ ᴡʜᴇɴ ɪ ᴀꜱᴋ ʏᴏᴜ ᴛᴏ. ᴡʜᴇᴛʜᴇʀ ʏᴏᴜ ꜱᴇᴇ ᴍᴇ ᴀꜱ ᴀ ᴄʜʀᴏɴɪᴄᴀʟʟʏ ᴏɴʟɪɴᴇ ᴘᴇʀꜱᴏɴ ᴏʀ ɴᴏᴛ, ʀᴇᴍᴇᴍʙᴇʀ ᴛʜᴀᴛ ᴍʏ ʙᴏᴜɴᴅᴀʀɪᴇꜱ ᴍᴀᴛᴛᴇʀ.
+yes this is who I am, I was raised by the internet my entire life and I was the weird kid in my school. If you find me weird then just hide/block me, not that hard.
+
+HUGE sonic fan I lovelove sonic so muchhchch!!!
+
+I'm a platonic multishipper!! I love sallamy, sonamy, sonally, etc!!
+
+DNI IF YOU ARE A SONADOW SHIPPER. THAT SHIP MAKES ME UNCOMFORTABLE
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
