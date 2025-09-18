@@ -37,6 +37,7 @@ Mangey , Sails , Gnarly knuckles , Thorn rose , Amy rose , Sonic The Hedgehog , 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
 
 𝗗𝗡𝗜 list :
+
 11 y/o's or below (I don't do friendship with kids)
 
 18+ or above
