@@ -1,7 +1,3 @@
-∘₊✧─── 𝗦𝗰𝗿𝗼𝗹𝗹 𝗱𝗼𝘄𝗻 𝗳𝗼𝗿 𝗶𝗻𝗳𝗼 ! ───✧₊∘ 
-
-![cafc48e4080dc2b3cf0a931d5730024c](https://github.com/user-attachments/assets/22f86ad5-e870-457e-9905-ebce532ce4f0)
-
 ∘₊✧─────────────────✧₊∘ 
 
 ᴀᴄᴄᴏᴜɴᴛ ᴍᴀᴅᴇ ꜰᴏʀ ᴘᴏɴʏ ᴛᴏᴡɴ ᴘᴜʀᴘᴏꜱᴇꜱ
@@ -24,6 +20,12 @@ I'm a complex person and I'm not easy to become friends with, so please be cauti
 
 please stop when I ask you to. whether you see me as a chronically online person or not, remember that I'm a human being and my boundaries matter.
 
+ ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
+
+∘₊✧── 𝗦𝗰𝗿𝗼𝗹𝗹 𝗱𝗼𝘄𝗻, 𝘁𝗵𝗲𝗿𝗲'𝘀 𝘀𝘁𝗶𝗹𝗹 𝗺𝗼𝗿𝗲 ! ───✧₊∘ 
+
+![cafc48e4080dc2b3cf0a931d5730024c](https://github.com/user-attachments/assets/bc3a1364-5ca2-43a0-b0cd-fa1a9f6893aa)
+ 
  ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
 
 I'm a HUGE sonic fan!! plz interact if you like sonic I LOVE sonic so much
