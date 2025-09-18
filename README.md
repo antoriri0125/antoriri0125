@@ -1,3 +1,6 @@
+
+![3e11686a0a822821ba84a24ce89e668c](https://github.com/user-attachments/assets/7de7261a-6235-460a-81c6-7c192765a1fa)
+
 ∘₊✧─────────────────✧₊∘ 
 
 ᴀᴄᴄᴏᴜɴᴛ ᴍᴀᴅᴇ ꜰᴏʀ ᴘᴏɴʏ ᴛᴏᴡɴ ᴘᴜʀᴘᴏꜱᴇꜱ
@@ -20,13 +23,22 @@ I'm a complex person and I'm not easy to become friends with, so please be cauti
 
 please stop when I ask you to. whether you see me as a chronically online person or not, remember that I'm a human being and my boundaries matter.
 
-yes this is who I am, I was raised by the internet my entire life and I was the weird kid in my school. If you find me weird then just hide/block me, not that hard.
+ ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
 
-HUGE sonic fan I lovelove sonic so muchhchch!!!
+I'm a HUGE sonic fan!! plz interact if you like sonic I LOVE sonic so much
 
-I'm a platonic multishipper!! I love sallamy, sonamy, sonally, etc!!
+My fictionkins are :
 
-DNI IF YOU ARE A SONADOW SHIPPER. THAT SHIP MAKES ME UNCOMFORTABLE
+Mangey , Sails , Gnarly knuckles , Thorn rose , Amy rose , Sonic The Hedgehog , Dr Eggman , Chao , Cubot , Rewrite sonic (and maybe more I think I just forgot the rest eheheh) 
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
+
+𝗗𝗡𝗜 list :
+11 y/o's or below (I don't do friendship with kids)
+18+ or above
+sonadow shippers (Im very uncomfortable with it becuz most people oversexualize the ship judging by what I'VE seen)
+metonic shippers (doesnt even make sense smh)
+basic 𝗗𝗡𝗜 criteria!!!
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
