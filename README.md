@@ -38,9 +38,13 @@ Mangey , Sails , Gnarly knuckles , Thorn rose , Amy rose , Sonic The Hedgehog , 
 
 𝗗𝗡𝗜 list :
 11 y/o's or below (I don't do friendship with kids)
+
 18+ or above
+
 sonadow shippers (Im very uncomfortable with it becuz most people oversexualize the ship judging by what I'VE seen)
+
 metonic shippers (doesnt even make sense smh)
+
 basic 𝗗𝗡𝗜 criteria!!!
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
