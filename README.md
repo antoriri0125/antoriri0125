@@ -1,3 +1,7 @@
+↓ Welcome to my github , Scroll down ↓
+
+![pony-town-antorio - iwc-boop-lie-blinking-padded-4x](https://github.com/user-attachments/assets/55e0fc74-525b-46c7-9382-b7cde1b16bb0)
+
 ∘₊✧─────────────────✧₊∘ 
 
 ᴀᴄᴄᴏᴜɴᴛ ᴍᴀᴅᴇ ꜰᴏʀ ᴘᴏɴʏ ᴛᴏᴡɴ ᴘᴜʀᴘᴏꜱᴇꜱ
@@ -48,7 +52,7 @@ Mangey , Sails , Gnarly knuckles , Thorn rose , Amy rose , Sonic The Hedgehog , 
 
 𝗗𝗡𝗜 list :
 
-11 y/o's or below but act mature if you DO interact (I don't do friendship with kids btw)
+11 y/o's or below but PLEASE act mature if you DO interact (I don't do friendship with kids btw)
 
 18+ or above
 
