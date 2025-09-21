@@ -26,7 +26,7 @@ If I'm sleeping that indicates that I'm AFK or offtab at the moment, so it's bes
 
 I have mild dementia and I constantly forget who people are unless I see them occasionally, please remind me who you are if we've met/interacted before
 
-I'm a complex person and I'm not easy to become friends with, so please be cautious with me as I have a disorganized attachment style.
+I'm a complex person and I'm not easy to become friends with, so please be cautious with me as I have a disorganized attachment style. (I get very comfortable and talkative with my close/best friends so if I act like this around you, congrats bud you're one of my BEST pals!!)
 
 Keep in mind that whether you see me as a chronically online person or not, remember that I'm a human being and my boundaries matter. So please  go away or stop when I ask you to.
 
@@ -64,18 +64,15 @@ basic 𝗗𝗡𝗜 criteria!!!
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
-★ ꜱᴏɴɪᴄ ᴛʜᴇ ʜᴇᴅɢᴇʜᴏɢ ɪꜱ ᴍʏ ꜱᴘɪʀɪᴛ ᴀɴɪᴍᴀʟ ♡
+tuff roblox screenshots dump😂🤣😂🤣🤣 (I love my gang <3)
 
-![giphy](https://github.com/user-attachments/assets/af7b266e-7635-4ce6-b7cf-91cbdc12924d)
+<img width="250" height="240" alt="RobloxScreenShot20250920_183239765" src="https://github.com/user-attachments/assets/86f69f73-db59-4fe4-8f00-87e4080f3e24" />
+<img width="250" height="240" alt="RobloxScreenShot20250920_124323234" src="https://github.com/user-attachments/assets/ca4b3c8b-4f13-45ad-bab2-6163e93270ed" />
 
-
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-
-tuff rblx screenshots 😂🤣😂🤣🤣 (I love my gang <3)
-
+<img width="250" height="240" alt="RobloxScreenShot20250920_145458290" src="https://github.com/user-attachments/assets/15dead84-d25c-4621-954d-a9223b7679a9" />
 <img width="250" height="240" alt="0b245249-d022-4942-8385-88b6d43a7685" src="https://github.com/user-attachments/assets/23fa4bb3-1b72-41b5-9ebd-862fb5c4a6de" />
 
 this is me guys trust
 
-<img width="250" height="240" alt="image-22" src="https://github.com/user-attachments/assets/967cc340-2cfe-4079-8873-9b0b6cd8298c" />
+<img width="260" height="250" alt="image-22" src="https://github.com/user-attachments/assets/967cc340-2cfe-4079-8873-9b0b6cd8298c" />
 <img width="250" height="240" alt="image-12" src="https://github.com/user-attachments/assets/af29ad4f-db5c-4fa0-9382-920d1223b993" />
