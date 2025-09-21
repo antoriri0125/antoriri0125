@@ -47,11 +47,11 @@ I'm a HUGE sonic fan!! plz interact if you like sonic I LOVE sonic so much (I ge
 
 $${\color{white}My \space Fictionkins \space <3}$$
 
-$${\color{white}Mangey \space ' \space Sails \space ' \space Gnarly knuckles \space ' \space Thorn rose}$$
+$${\color{white}Mangey \space ' \space Sails \space ' \space Gnarly \space knuckles \space ' \space Thorn \space rose}$$
 
 $${\color{white}Sonic \space ' \space Doctor \space eggman \space ' \space Cubot \space ' \space Rewrite \space sonic}$$
 
-$${\color{white}Mystic \space Flour \space cookie \space ' \space Dumbass \space ' \space Sayori \space ' \space Chao}$$
+$${\color{white}Mystic \space Flour \space cookie \space ' \space Dumbass \space ' \space Sayori \space ' \space Chao \space Chao}$$
 
 $${\color{white}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
