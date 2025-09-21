@@ -1,20 +1,19 @@
-↓ Welcome to my github , Scroll down ↓
+$${\color{white}↓ \space Welcome \space to \space my \space github \space , \space Scroll \space down \space ↓}$$
 
-![pony-town-antorio - iwc-boop-lie-blinking-padded-4x](https://github.com/user-attachments/assets/55e0fc74-525b-46c7-9382-b7cde1b16bb0)
 
-∘₊✧─────────────────✧₊∘ 
+$${\color{white}∘₊✧─────────────────✧₊∘}$$
 
-ᴀᴄᴄᴏᴜɴᴛ ᴍᴀᴅᴇ ꜰᴏʀ ᴘᴏɴʏ ᴛᴏᴡɴ ᴘᴜʀᴘᴏꜱᴇꜱ
+$${\color{white}Account \space Made \space For \space Pony \space Town \space Purposes}$$
 
- ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
+$${\color{white}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
-ᴍᴀɪɴ ꜱᴛʀᴀᴡᴘᴀɢᴇ ɪꜱ ᴀʙᴏᴠᴇ ᴛʜᴇ ᴏᴛʜᴇʀ ʟɪɴᴋꜱ
+$${\color{white}Main \space Strawpage \space Is \space Above \space The \space Other \space Links}$$
 
- ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
+$${\color{white}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
  
-01/25/72 ` 07/11/08 
+$${\color{white}01/25/72 \space \space ' \space \space 07/11/08}$$ 
 
-↓ 𝗥𝗘𝗔𝗗 𝗕𝗘𝗙𝗢𝗥𝗘 𝗬𝗢𝗨 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 ↓
+$${\color{white}↓ \space 𝗥𝗘𝗔𝗗 \space 𝗕𝗘𝗙𝗢𝗥𝗘 \space 𝗬𝗢𝗨 \space 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 \space ↓}$$
 
 Please interact with caution as I had a problematic past, so there will be times when I don't act friendly.
 
@@ -32,49 +31,53 @@ Keep in mind that whether you see me as a chronically online person or not, reme
 
 I get very overwhelmed when I'm talking to a lot of people at the same time, so I may become nonverbal if it's too much to handle
 
- ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
+$${\color{white}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
-∘₊✧── 𝗦𝗰𝗿𝗼𝗹𝗹 𝗱𝗼𝘄𝗻, 𝘁𝗵𝗲𝗿𝗲'𝘀 𝘀𝘁𝗶𝗹𝗹 𝗺𝗼𝗿𝗲 ! ───✧₊∘ 
-
-![cafc48e4080dc2b3cf0a931d5730024c](https://github.com/user-attachments/assets/bc3a1364-5ca2-43a0-b0cd-fa1a9f6893aa)
+$${\color{white}∘₊✧── \space 𝗦𝗰𝗿𝗼𝗹𝗹 \space 𝗱𝗼𝘄𝗻, \space 𝘁𝗵𝗲𝗿𝗲'𝘀 \space 𝘀𝘁𝗶𝗹𝗹 \space 𝗺𝗼𝗿𝗲 \space ! \space ───✧₊∘}$$
  
- ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
+$${\color{white}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
-<img width="600" height="200" alt="Capture" src="https://github.com/user-attachments/assets/91778086-63ac-4382-8332-8dbf8a42582d" />
+<img align="left" width="500" height="200" alt="Capture" src="https://github.com/user-attachments/assets/91778086-63ac-4382-8332-8dbf8a42582d" />
 
 I love henny huisman so much (inside joke between me and my gang yall wouldnt get it..sighs /j) 
 
 I'm a HUGE sonic fan!! plz interact if you like sonic I LOVE sonic so much (I get a bit shy interacting with people with the same interests as me so don't expect me to be very talkative about sonic related topics)
 
-My fictionkins are :
+⫘⫘⫘⫘⫘⫘⫘⫘
 
-Mangey , Sails , Gnarly knuckles , Thorn rose , Amy rose , Sonic The Hedgehog , Dr Eggman , Chao , Cubot , Rewrite sonic (and maybe more I think I just forgot the rest eheheh) 
+$${\color{white}My \space Fictionkins \space <3}$$
 
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
+$${\color{white}Mangey \space ' \space Sails \space ' \space Gnarly knuckles \space ' \space Thorn rose}$$
 
-𝗗𝗡𝗜 list :
+$${\color{white}Sonic \space ' \space Doctor \space eggman \space ' \space Cubot \space ' \space Rewrite \space sonic}$$
 
-11 y/o's or below but PLEASE act mature if you DO interact (I don't do friendship with kids btw)
+$${\color{white}Mystic \space Flour \space cookie \space ' \space Dumbass \space ' \space Sayori \space ' \space Chao}$$
 
-18+ or above
+$${\color{white}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
-sonadow shippers (Im very uncomfortable with it becuz most people oversexualize the ship judging by what I'VE seen)
+$${\color{red}DO \space NOT \space INTERACT \space LIST}$$
 
-metonic shippers (doesnt even make sense smh)
+$${\color{red}People \space under \space 12 \space (If \space you \space DO \space interact \space please \space act \space mature,..)}$$
 
-basic 𝗗𝗡𝗜 criteria!!!
+$${\color{red}People \space who \space are \space 18+ \space or \space above}$$
 
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+$${\color{red}Sonadow \space shippers \space (way \space too \space out \space of \space character \space imo)}$$
 
-tuff roblox screenshots dump😂🤣😂🤣🤣 (I love my gang <3)
+$${\color{red}Metonic \space shippers \space (doesnt \space even \space make \space sense \space smh)}$$
 
-<img width="250" height="240" alt="RobloxScreenShot20250920_183239765" src="https://github.com/user-attachments/assets/86f69f73-db59-4fe4-8f00-87e4080f3e24" />
+$${\color{red}Basic \space DNI \space Criteria!}$$
+
+$${\color{white}⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘}$$
+
+$${\color{white}tuff \space roblox \space screenshots \space dump😂🤣😂🤣🤣 \space (I \space love \space my \space gang \space <3)}$$
+
+<img align="left" width="250" height="240" alt="RobloxScreenShot20250920_183239765" src="https://github.com/user-attachments/assets/86f69f73-db59-4fe4-8f00-87e4080f3e24" />
 <img width="250" height="240" alt="RobloxScreenShot20250920_124323234" src="https://github.com/user-attachments/assets/ca4b3c8b-4f13-45ad-bab2-6163e93270ed" />
 
 <img width="250" height="240" alt="RobloxScreenShot20250920_145458290" src="https://github.com/user-attachments/assets/15dead84-d25c-4621-954d-a9223b7679a9" />
 <img width="250" height="240" alt="0b245249-d022-4942-8385-88b6d43a7685" src="https://github.com/user-attachments/assets/23fa4bb3-1b72-41b5-9ebd-862fb5c4a6de" />
 
-this is me guys trust
+$${\color{white}this \space is \space me \space guys \space trust}$$
 
 <img width="260" height="250" alt="image-22" src="https://github.com/user-attachments/assets/967cc340-2cfe-4079-8873-9b0b6cd8298c" />
 <img width="250" height="240" alt="image-12" src="https://github.com/user-attachments/assets/af29ad4f-db5c-4fa0-9382-920d1223b993" />
