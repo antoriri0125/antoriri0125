@@ -14,11 +14,17 @@ Please interact with caution as I had a problematic past, so there will be times
 
 Feel free to interact unless said otherwise (May have DNIUF/DNIUCF labeled in my name sometimes for personal reasons.)
 
-I have mild dementia and I constantly forget who people are unless I see them occasionally.
+If you wanna become friends, please tell me so I can send you a friend request. (my friend requests are disabled. keep in mind I unfriend people after a while of no interaction)
+
+If I'm sleeping that indicates that I'm AFK or offtab at the moment, so it's best to whisper me at this time
+
+I have mild dementia and I constantly forget who people are unless I see them occasionally, please remind me who you are if we've met/interacted before
 
 I'm a complex person and I'm not easy to become friends with, so please be cautious with me as I have a disorganized attachment style.
 
-please stop when I ask you to. whether you see me as a chronically online person or not, remember that I'm a human being and my boundaries matter.
+Keep in mind that whether you see me as a chronically online person or not, remember that I'm a human being and my boundaries matter. So please  go away or stop when I ask you to.
+
+I get very overwhelmed when I'm talking to a lot of people at the same time, so I may become nonverbal if it's too much to handle
 
  ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
 
@@ -28,7 +34,7 @@ please stop when I ask you to. whether you see me as a chronically online person
  
  ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
 
-I'm a HUGE sonic fan!! plz interact if you like sonic I LOVE sonic so much
+I'm a HUGE sonic fan!! plz interact if you like sonic I LOVE sonic so much (I get a bit shy interacting with people with the same interests as me so don't expect me to be very talkative about sonic related topics)
 
 My fictionkins are :
 
@@ -38,7 +44,7 @@ Mangey , Sails , Gnarly knuckles , Thorn rose , Amy rose , Sonic The Hedgehog , 
 
 𝗗𝗡𝗜 list :
 
-11 y/o's or below (I don't do friendship with kids)
+11 y/o's or below but act mature if you interact (I don't do friendship with kids)
 
 18+ or above
 
