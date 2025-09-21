@@ -7,6 +7,8 @@
 ᴍᴀɪɴ ꜱᴛʀᴀᴡᴘᴀɢᴇ ɪꜱ ᴀʙᴏᴠᴇ ᴛʜᴇ ᴏᴛʜᴇʀ ʟɪɴᴋꜱ
 
  ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
+ 
+01/25/72 ` 07/11/08 
 
 ↓ 𝗥𝗘𝗔𝗗 𝗕𝗘𝗙𝗢𝗥𝗘 𝗬𝗢𝗨 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 ↓
 
@@ -34,6 +36,8 @@ I get very overwhelmed when I'm talking to a lot of people at the same time, so 
  
  ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
 
+I love henny huisman so much (inside joke between me and my gang yall wouldnt get it..sighs /j)
+
 I'm a HUGE sonic fan!! plz interact if you like sonic I LOVE sonic so much (I get a bit shy interacting with people with the same interests as me so don't expect me to be very talkative about sonic related topics)
 
 My fictionkins are :
@@ -44,7 +48,7 @@ Mangey , Sails , Gnarly knuckles , Thorn rose , Amy rose , Sonic The Hedgehog , 
 
 𝗗𝗡𝗜 list :
 
-11 y/o's or below but act mature if you interact (I don't do friendship with kids)
+11 y/o's or below but act mature if you DO interact (I don't do friendship with kids btw)
 
 18+ or above
 
