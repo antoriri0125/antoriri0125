@@ -71,6 +71,11 @@ basic 𝗗𝗡𝗜 criteria!!!
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
-tuff 😂🤣😂🤣🤣
+tuff rblx screenshots 😂🤣😂🤣🤣 (I love my gang <3)
 
-![0b245249-d022-4942-8385-88b6d43a7685](https://github.com/user-attachments/assets/150a5097-1402-4b5e-beb0-fe4fc5e776e2)
+<img width="250" height="240" alt="0b245249-d022-4942-8385-88b6d43a7685" src="https://github.com/user-attachments/assets/23fa4bb3-1b72-41b5-9ebd-862fb5c4a6de" />
+
+this is me guys trust
+
+<img width="250" height="240" alt="image-22" src="https://github.com/user-attachments/assets/967cc340-2cfe-4079-8873-9b0b6cd8298c" />
+<img width="250" height="240" alt="image-12" src="https://github.com/user-attachments/assets/af29ad4f-db5c-4fa0-9382-920d1223b993" />
