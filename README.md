@@ -40,7 +40,9 @@ I get very overwhelmed when I'm talking to a lot of people at the same time, so 
  
  ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ 
 
-I love henny huisman so much (inside joke between me and my gang yall wouldnt get it..sighs /j)
+<img width="600" height="200" alt="Capture" src="https://github.com/user-attachments/assets/91778086-63ac-4382-8332-8dbf8a42582d" />
+
+I love henny huisman so much (inside joke between me and my gang yall wouldnt get it..sighs /j) 
 
 I'm a HUGE sonic fan!! plz interact if you like sonic I LOVE sonic so much (I get a bit shy interacting with people with the same interests as me so don't expect me to be very talkative about sonic related topics)
 
