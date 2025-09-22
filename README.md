@@ -1,4 +1,5 @@
-(Dark theme is highly recommended or else you won't see white texts !!!)
+$${\color{black}(Dark \space theme \space is \space highly \space recommended \space or \space else \space you \space won't \space see \space white \space texts !!!)}$$
+
 
 $${\color{white}↓ \space Welcome \space to \space my \space github \space , \space Scroll \space down \space ↓}$$
 
