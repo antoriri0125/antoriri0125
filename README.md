@@ -21,6 +21,8 @@ $${\color{white}↓ \space 𝗥𝗘𝗔𝗗 \space 𝗕𝗘𝗙𝗢𝗥𝗘 \spa
 
 Please interact with caution as I had a problematic past, so there will be times when I don't act friendly.
 
+I'm a argumentative person, I may start arguments without meaning to so be careful when we talk about controversial topics
+
 Feel free to interact unless said otherwise (May have DNIUF/DNIUCF labeled in my name sometimes for personal reasons.)
 
 If you wanna become friends, please tell me so I can send you a friend request. (my friend requests are disabled. keep in mind I unfriend people after a while of no interaction)
