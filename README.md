@@ -1,4 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=antoriri0125)}
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=antoriri0125)
 
 $${\color{blue}↓ \space Welcome \space to \space my \space github \space , \space Scroll \space down \space ↓}$$
 
