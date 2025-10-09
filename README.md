@@ -2,7 +2,7 @@
 
 $${\color{blue}↓ \space Welcome \space to \space my \space github \space , \space Scroll \space down \space ↓}$$
 
-<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/4c30094e-0283-4cf2-8738-c130b248a92c" />
+<img width="800" height="700" alt="image" src="https://github.com/user-attachments/assets/4c30094e-0283-4cf2-8738-c130b248a92c" />
 
 $${\color{yellow}∘₊✧─────────────────✧₊∘}$$
 
@@ -16,9 +16,16 @@ $${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺
  
 $${\color{blue}01/25/72 \space \space ' \space \space 07/11/08}$$ 
 
+
 $${\color{yellow}↓ \space 𝗥𝗘𝗔𝗗 \space 𝗕𝗘𝗙𝗢𝗥𝗘 \space 𝗬𝗢𝗨 \space 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 \space ↓}$$
 
+![blinkiesCafe-Hh](https://github.com/user-attachments/assets/a79ee770-737f-4a55-ad4d-335a872b2ea2)![blinkiesCafe-9c](https://github.com/user-attachments/assets/c2d9cd54-579d-4de3-82e8-56e8f9fbf0d5)![blinkiesCafe-vg](https://github.com/user-attachments/assets/78847b76-1e97-49b2-804c-8e1b97ce5557)
+
+![blinkiesCafe-fO](https://github.com/user-attachments/assets/57acc897-de97-421c-8676-bc02aea5d338)![blinkiesCafe-6r](https://github.com/user-attachments/assets/236d22b0-545e-4d67-91d5-5af33fe37355)
+
 Please interact with caution as I had a problematic past, so there will be times when I don't act friendly.
+
+I feel constantly uncomfortable interacting with sonic fans, despite me liking sonic myself. I've met people in the fandom who acted weird towards me, that's why. You can still interact if you like sonic, just please don't be weird in a creepy way 
 
 I'm an argumentative person. I may start arguments without meaning to, so be careful if you're gonna share your opinion about something.
 
@@ -46,7 +53,7 @@ $${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺
 
 I love henny huisman so much (inside joke between me and my gang yall wouldnt get it..sighs /j) 
 
-I'm a HUGE sonic fan!! plz interact if you like sonic I LOVE sonic so much (I get a bit shy interacting with people with the same interests as me so don't expect me to be very talkative about sonic related topics)
+I get a bit anxious and shy interacting with sonic fans so don't expect me to be very talkative about sonic related topics
 
 ⫘⫘⫘⫘⫘⫘⫘⫘
 
