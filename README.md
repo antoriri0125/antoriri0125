@@ -19,9 +19,11 @@ $${\color{blue}01/25/72 \space \space ' \space \space 07/11/08}$$
 
 $${\color{yellow}↓ \space 𝗥𝗘𝗔𝗗 \space 𝗕𝗘𝗙𝗢𝗥𝗘 \space 𝗬𝗢𝗨 \space 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 \space ↓}$$
 
-![blinkiesCafe-Hh](https://github.com/user-attachments/assets/a79ee770-737f-4a55-ad4d-335a872b2ea2)![blinkiesCafe-9c](https://github.com/user-attachments/assets/c2d9cd54-579d-4de3-82e8-56e8f9fbf0d5)![blinkiesCafe-vg](https://github.com/user-attachments/assets/78847b76-1e97-49b2-804c-8e1b97ce5557)
+![blinkiesCafe-9c](https://github.com/user-attachments/assets/c2d9cd54-579d-4de3-82e8-56e8f9fbf0d5)![blinkiesCafe-vg](https://github.com/user-attachments/assets/78847b76-1e97-49b2-804c-8e1b97ce5557)
 
-![blinkiesCafe-fO](https://github.com/user-attachments/assets/57acc897-de97-421c-8676-bc02aea5d338)![blinkiesCafe-6r](https://github.com/user-attachments/assets/236d22b0-545e-4d67-91d5-5af33fe37355)
+![blinkiesCafe-Hh](https://github.com/user-attachments/assets/a79ee770-737f-4a55-ad4d-335a872b2ea2)![blinkiesCafe-6r](https://github.com/user-attachments/assets/236d22b0-545e-4d67-91d5-5af33fe37355)
+
+![blinkiesCafe-fO](https://github.com/user-attachments/assets/57acc897-de97-421c-8676-bc02aea5d338)
 
 Please interact with caution as I had a problematic past, so there will be times when I don't act friendly.
 
