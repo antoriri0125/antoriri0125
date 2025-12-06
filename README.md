@@ -14,36 +14,26 @@ $${\color{blue}Main \space Strawpage \space Is \space Above \space The \space Ot
 
 $${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
  
-$${\color{blue}01/25/72 \space \space ' \space \space 07/11/08}$$ 
+$${\color{blue}01/25/72 \space}$$ 
 
 
 $${\color{yellow}↓ \space 𝗥𝗘𝗔𝗗 \space 𝗕𝗘𝗙𝗢𝗥𝗘 \space 𝗬𝗢𝗨 \space 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 \space ↓}$$
 
-![blinkiesCafe-9c](https://github.com/user-attachments/assets/c2d9cd54-579d-4de3-82e8-56e8f9fbf0d5)![blinkiesCafe-vg](https://github.com/user-attachments/assets/78847b76-1e97-49b2-804c-8e1b97ce5557)
+Please interact with caution as I had a problematic past, so there will be times when I don't act friendly. I'm friendly most of the time so please don't be hesitant to approach me!
 
-![blinkiesCafe-Hh](https://github.com/user-attachments/assets/a79ee770-737f-4a55-ad4d-335a872b2ea2)![blinkiesCafe-6r](https://github.com/user-attachments/assets/236d22b0-545e-4d67-91d5-5af33fe37355)
-
-![blinkiesCafe-fO](https://github.com/user-attachments/assets/57acc897-de97-421c-8676-bc02aea5d338)
-
-Please interact with caution as I had a problematic past, so there will be times when I don't act friendly.
-
-I feel constantly uncomfortable interacting with sonic fans, despite me liking sonic myself. I've met people in the fandom who acted weird towards me, that's why. You can still interact if you like sonic, just please don't be weird in a creepy way 
-
-I'm an argumentative person. I may start arguments without meaning to, so be careful if you're gonna share your opinion about something.
+I hide/block freely, don't be a weirdo towards me
 
 You can interact with me freely unless said otherwise (May have DNIUF/DNIUCF labeled in my name sometimes for personal reasons.)
 
-If you wanna become friends, please tell me so I can send you a friend request. (my friend requests are disabled. keep in mind I unfriend people after a while of no interaction)
+If you wanna become friends, ask to send friend reqs. (my friend requests are disabled. keep in mind I unfriend people after a while of no interaction)
 
 If I'm sleeping that indicates that I'm AFK or offtab at the moment, so it's best to whisper me at this time
 
 I have mild dementia and I constantly forget who people are unless I see them occasionally, please remind me who you are if we've met/interacted before
 
-I'm a complex person and I'm not easy to become friends with, so please be cautious with me as I have a disorganized attachment style. (I get very comfortable and talkative with my close/best friends so if I act like this around you, congrats bud you're considered one of my BEST pals!!)
+I'm a complex person and I'm not easy to become friends with, so please be cautious with me as I have a disorganized attachment style.
 
 Keep in mind that whether you see me as a chronically online person or not, remember that I'm a human being and my boundaries matter. So please  go away or stop when I ask you to.
-
-I get very overwhelmed when I'm talking to a lot of people at the same time, so I may become nonverbal if it's too much to handle
 
 $${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
