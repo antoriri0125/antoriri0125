@@ -1,9 +1,5 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=antoriri0125)
 
-$${\color{blue}↓ \space welcome \space to \space my \space github \space , \space scroll \space down \space ↓}$$
-
-<img width="800" height="700" alt="image" src="https://github.com/user-attachments/assets/4c30094e-0283-4cf2-8738-c130b248a92c" />
-
 $${\color{yellow}∘₊✧─────────────────✧₊∘}$$
 
 $${\color{blue}account \space made \space for \space __pony__ \space __town__ \space __purposes__}$$
@@ -31,6 +27,8 @@ if I'm sleeping that indicates that I'm AFK or offtab at the moment, so it's bes
 
 i'm terminally/chronically online pls kill me (if you're a normal person beware of my behaviour)
 
+you can copy my skins and/or take inspo, no need to ask or tell me I simply do not give a fuck
+
 respect my boundaries pls hope thats not much for you to handle thanks
 
 $${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
@@ -41,7 +39,7 @@ $${\color{blue}∘₊✧── \space extra \space info \space (probably \space 
 
 *__bisexual & aroace__*
 
-I have a __long distance partner__ (labyou trix <3)
+I have a lovely partner
 
 my fictionkin is *__rewrite sonic__*!!!
 
@@ -63,27 +61,14 @@ roblox : lexiz_chan
 
 ⫘⫘⫘⫘⫘⫘⫘⫘
 
-$${\color{white}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
+$${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
-$${\color{red}DO \space NOT \space INTERACT \space LIST}$$
+this is my amy rose kinsona, cool right? haha
 
-$${\color{red}Sonadow \space shippers \space (way \space too \space out \space of \space character \space imo)}$$
+<img align="center" width="223" height="520" alt="image" src="https://github.com/user-attachments/assets/0257e07b-5e0d-4d50-964e-da8f183f7bce" />
 
-$${\color{red}Metonic \space shippers \space (doesnt \space even \space make \space sense \space smh)}$$
+$${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
-$${\color{red}basic \space DNI \space criteria \space ok?}$$
+<img align="center" width="223" height="390" alt="Capture" src="https://github.com/user-attachments/assets/daee16b0-28b8-4532-a3dc-2a35155b6ff1" />
 
-$${\color{white}⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘}$$
-
-$${\color{yellow}tuff \space roblox \space screenshots \space dump😂🤣😂🤣🤣 \space (I \space love \space my \space gang \space <3)}$$
-
-<img align="left" width="250" height="240" alt="RobloxScreenShot20250920_183239765" src="https://github.com/user-attachments/assets/86f69f73-db59-4fe4-8f00-87e4080f3e24" />
-<img width="250" height="240" alt="RobloxScreenShot20250920_124323234" src="https://github.com/user-attachments/assets/ca4b3c8b-4f13-45ad-bab2-6163e93270ed" />
-
-<img width="250" height="240" alt="RobloxScreenShot20250920_145458290" src="https://github.com/user-attachments/assets/15dead84-d25c-4621-954d-a9223b7679a9" />
-<img width="250" height="240" alt="0b245249-d022-4942-8385-88b6d43a7685" src="https://github.com/user-attachments/assets/23fa4bb3-1b72-41b5-9ebd-862fb5c4a6de" />
-
-$${\color{yellow}this \space is \space me \space guys...,}$$
-
-<img width="260" height="250" alt="image-22" src="https://github.com/user-attachments/assets/967cc340-2cfe-4079-8873-9b0b6cd8298c" />
-<img width="250" height="240" alt="image-12" src="https://github.com/user-attachments/assets/af29ad4f-db5c-4fa0-9382-920d1223b993" />
+thanks for reading. whisper me "0125" if you reached the end
