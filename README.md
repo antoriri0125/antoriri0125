@@ -19,7 +19,7 @@ interact with caution (i'm chill most of the time but I have no filter sorry)
 
 I hide/block freely, don't be a weirdo towards me
 
-interact freely unless said otherwise (may have dniuf/cf labeled in my name sometimes for personal reasons)
+you can interact freely unless said otherwise (sometimes may have dniuf/cf labeled in my name for personal reasons)
 
 ask to send friend reqs (my friend requests are disabled. keep in mind I unfriend people after a while of no interaction)
 
@@ -27,31 +27,33 @@ if I'm sleeping that indicates that I'm AFK or offtab at the moment, so it's bes
 
 i'm terminally/chronically online pls kill me (if you're a normal person beware of my behaviour)
 
-you can copy my skins and/or take inspo, no need to ask or tell me I simply do not give a fuck
+you can copy my skins and/or take inspo, no need to ask or tell me. do not say it's yours though!!! (who am I to stop you if you say that anyway?)
 
 respect my boundaries pls hope thats not much for you to handle thanks
 
 $${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
-$${\color{blue}∘₊✧── \space extra \space info \space (probably \space useless) \space ───✧₊∘}$$
+$${\color{blue}∘₊✧── \space extra \space info}$$
 
 *__crosspronominal__*
 
 *__bisexual & aroace__*
 
-I have a lovely partner
+I have ADHD and depression 
+
+I frequently have episodes that involve bpd symptoms (not diagnosed just symptoms) do not interact with me as I am easy to get triggered during this time
 
 my fictionkin is *__rewrite sonic__*!!!
 
 $${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
-$${\color{blue}∘₊✧── \space s𝗰𝗿𝗼𝗹𝗹 \space 𝗱𝗼𝘄𝗻, \space 𝘁𝗵𝗲𝗿𝗲'𝘀 \space 𝘀𝘁𝗶𝗹𝗹 \space 𝗺𝗼𝗿𝗲 \space ! \space ───✧₊∘}$$
+$${\color{blue}∘₊✧── \space 𝘀𝗰𝗿𝗼𝗹𝗹 \space 𝗱𝗼𝘄𝗻, \space 𝘁𝗵𝗲𝗿𝗲'𝘀 \space 𝘀𝘁𝗶𝗹𝗹 \space 𝗺𝗼𝗿𝗲 \space ! \space ───✧₊∘}$$
  
 $${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
 <img align="left" width="300" height="200" alt="Capture" src="https://github.com/user-attachments/assets/91778086-63ac-4382-8332-8dbf8a42582d" />
 
-my social media
+my social medias (add freely! dont be shy)
 
 discord : carrot.loverr0125 
 
