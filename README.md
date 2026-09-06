@@ -1,51 +1,52 @@
-![](https://komarev.com/ghpvc/?username=antoriri0125&label=01251972&abbreviated=true)
+$${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
-$${\color{yellow}∘₊✧─────────────────✧₊∘}$$
+$${\color{blue}∘₊✧─── \space 01251972 \space ───✧₊∘}$$
 
-$${\color{blue}01/25/1972 \space}$$ 
+<p align="center">interact & c+h+k freely</p>
+
+<p align="center">sleeping = afk/offtab (whisper if needed)</p>
+
+<p align="center">ask to send frqs</p>
+
+<p align="center">you can copy my skins and/or take inspo from it</p>
 
 $${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
-interact & c+h+k freely
-
-ask to send friend reqs
-
-sleeping = afk/offtab (whisper if needed)
-
-you can copy my skins and/or take inspo from it
+$${\color{blue}∘₊✧─── \space about \space me \space ───✧₊∘}$$
 
 $${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
-$${\color{blue}∘₊✧── \space about \space me \space ───✧₊∘}$$
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/700b7301-a4bf-47e3-a79a-9c0296dd31e2" height="30" alt="bisexual">
+  &nbsp;&nbsp;
+  <img src="https://github.com/user-attachments/assets/48b0cffd-f15b-4186-9d6e-226c36200160" height="30" alt="aroace">
+  &nbsp;&nbsp;
+  <img src="https://github.com/user-attachments/assets/f2281837-919f-4241-ad66-2c0b122e962b" height="30" alt="crosspronominal">
+</p>
 
-$${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
+<p align="center">18 y.o ₊ he/him</p>
 
-18 y.o he/him (minors under 14 iwc)
+<p align="center">adhd ₊ mdd ₊ generalized anxiety</p>
 
-bi aroace cross-pronominal
+<p align="center">chronically online</p>
 
-adhd + generalized anxiety
+<p align="center">2017x sharing yumeshipper</p>
 
-chronically online
+<p align="center">friendly & open to interactions ^^</p>
 
-im friendly & open to interactions c:
+<p align="center">
+  <a href="https://discord.com/users/1106163398938476544">discord account</a>
+</p>
 
-2017x sharing yumeshipper
+<p align="center">
+  <a href="https://www.tiktok.com/@0125.1972">tiktok account</a>
+</p>
 
-$${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
-
-$${\color{blue}∘₊✧── \space my \space social \space medias \space ───✧₊∘}$$
+<p align="center">
+  <a href="https://www.roblox.com/users/5814328821/profile">roblox account</a>
+</p>
  
 $${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
 
-discord : carrot.loverr0125 
+![](https://komarev.com/ghpvc/?username=antoriri0125&label=01251972&abbreviated=true)
 
-tiktok : 0125.1972 (main) . carrot.loverr0125 (old main)
-
-roblox : lexiz_chan
-
-$${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺ \space . \space ✦}$$
-
-$${\color{blue}01/25/1972 \space}$$ 
-
-$${\color{yellow}∘₊✧─────────────────✧₊∘}$$
