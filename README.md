@@ -26,7 +26,9 @@ bi aroace cross-pronominal
 
 adhd + generalized anxiety
 
-plss dont be scared to talk to me im friendly <3
+chronically online
+
+im friendly & open to interactions c:
 
 2017x sharing yumeshipper
 
