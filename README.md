@@ -16,9 +16,11 @@ $${\color{blue}∘₊✧─── \space 01251972 \space ───✧₊∘}$$
 
 <p align="center">chronically online</p>
 
-<p align="center">2017x sharing yumeshipper</p>
+<p align="center">open to interactions!</p>
 
-<p align="center">friendly & open to interactions ^^</p>
+<p align="center">im playful & teasing</p>
+
+<p align="center">(can act a tad too rude with my jokes unintentionally sorry QcQ)</p>
 
 <p align="center">
   <a href="https://discord.com/users/1106163398938476544">discord account</a>
@@ -41,6 +43,10 @@ $${\color{yellow}✦ \space . \space ⁺ \space . \space ✦ \space . \space ⁺
 <p align="center">ask to send frqs</p>
 
 <p align="center">you can copy my skins and/or take inspo from it</p>
+
+<p align="center">oh yeah and 2017x is my f/o wow <3</p>
+
+<p align="center">(sharing)</p>
 
 ![](https://komarev.com/ghpvc/?username=antoriri0125&label=01251972&abbreviated=true)
 
