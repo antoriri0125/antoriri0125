@@ -20,7 +20,7 @@ $${\color{blue}∘₊✧─── \space 01251972 \space ───✧₊∘}$$
 
 <p align="center">im playful & teasing</p>
 
-<p align="center">(can act a tad too rude with my jokes unintentionally sorry QcQ)</p>
+<p align="center">(might act a bit rude/weird with my jokes sorry QcQ)</p>
 
 <p align="center">
   <a href="https://discord.com/users/1106163398938476544">discord account</a>
