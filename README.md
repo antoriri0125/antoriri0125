@@ -12,7 +12,7 @@ $${\color{blue}∘₊✧─── \space 01251972 \space ───✧₊∘}$$
 
 <p align="center">᥊ꫀli ₊ 18 y.o ₊ he/him</p>
 
-<p align="center">adhd ₊ mdd ₊ generalized anxiety</p>
+<p align="center">adhd ₊ mdd ₊ gad</p>
 
 <p align="center">chronically online</p>
 
